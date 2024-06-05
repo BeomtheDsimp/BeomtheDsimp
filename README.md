@@ -13,6 +13,12 @@ I don't mind🦈๋࣭⭑
 
 🎨ISFP__✏️
 
+
+⋆𐙚₊˚I'm straight.ೃ࿔
+
+₊˚ʚ BD:08/11💙
+
+
 °❀⋆.ೃ࿔*:･Vietnamese 🇻🇳
 
 🫧⋆｡˚I'm not so good at English so don't judge if I don't understand what u say (really sorry abt that😭!!)
