@@ -26,7 +26,7 @@ I don't mind🦈๋࣭⭑
 🔮I like cats and cute things≽^•༚• ྀི≼
 
 
-☾I hate s*xjoke, d**djoke๋࣭ ⭑
+☾I hate s*xjoke, deadjoke๋࣭, racist,... ⭑
 
 .
 
