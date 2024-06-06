@@ -25,14 +25,11 @@ I don't mind🦈๋࣭⭑
 
 🔮I like cats and cute things≽^•༚• ྀི≼
 
+-
 
-☾I hate s*xjoke, deadjoke๋࣭, racist,... ⭑
+-
 
-.
-
-.
-
-.
+-
 
 
 𓏲 ๋࣭ ࣪ ˖🎐ᴍʜᴀ ʙɪɢ ғᴀɴs❤️‍🔥❤️‍🔥❤️‍🔥!!!
@@ -45,11 +42,15 @@ I don't mind🦈๋࣭⭑
 
 📘Other couples are probably fine with me🎧ྀི
 
-.
+✩°｡ ⋆⸜ 🎧✮ I also watching other animes like JJK, OP, HQ!!,...
 
-.
 
-.
+-
+
+-
+
+-
+
 ✩₊˚.⋆☾⋆⁺₊✧Ⓐⓑⓞⓤⓣ Ⓟⓞⓝⓨ Ⓣⓞⓦⓝ₊˚⊹♡
 
 🫧🐋I'm comfortable with C + H and INTᶻ 𝗓 𐰁
@@ -61,6 +62,9 @@ I don't mind🦈๋࣭⭑
 🌌I often cosplay anime characters but I don't roleplay.𖥔 ݁ ˖
 
 ✧˚ ༘ ⋆｡♡˚You can call me by the character name I use๋࣭ ⭑⚝
+
+
+꒰ᐢ. .ᐢ꒱₊˚⊹ Always use Dabi/ Touya Todoroki
 
 -
 
