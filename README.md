@@ -10,7 +10,7 @@
 
 .
 
-🌊You can call me Beom or anything you want^^
+🌊You can call me Beom or Bom Bom or whatever u want^^
 I don't mind🦈๋࣭⭑
 
 ˙ ✩°˖16+˙ 🫐 ⋆｡˚꩜
@@ -48,7 +48,7 @@ I don't mind🦈๋࣭⭑
 
 ✩°｡ ⋆⸜ 🎧✮ Other fandoms: 
 
-Jujusukaisen, Chainsawman, Kimesu no Yaiba, Haikyuu!!, Alien Stage
+˚.⋆☾⋆Jujusukaisen, Chainsawman, Kimesu no Yaiba, Haikyuu!!, Alien Stage,Hazbin Hotel & Helluva Boss,...
 
 -
 
@@ -60,7 +60,7 @@ Jujusukaisen, Chainsawman, Kimesu no Yaiba, Haikyuu!!, Alien Stage
 
 🫧🐋I'm comfortable with C + H and INTᶻ 𝗓 𐰁
 
-₊˚ʚ 💙 ₊˚✧ﾟ Sometimes afk, so w2i🐬
+₊˚ʚ 💙 ₊˚✧ﾟ always afk, so w2i🐬
 
 🧸ྀིDon't steal my skin ideas, if you want inspiration don't hesitate to ask💦
 
